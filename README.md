@@ -38,7 +38,8 @@ credit to [Fat Girl Trapped in a Skinny Body](http://www.fatgirltrappedinaskinny
 
 ## Bigger batches
 
-Ingredient quantities below to make a half or double batch:
+Ingredient quantities to make a half or double batch:
+>Note: Baking times may vary
 
 | Half | Single | Double |
 | ---- | ------ | ------ |
