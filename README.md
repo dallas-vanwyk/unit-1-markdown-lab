@@ -21,8 +21,8 @@ credit to [Fat Girl Trapped in a Skinny Body](http://www.fatgirltrappedinaskinny
 
 ### Preparation
 
-- [] Preheat oven to 350°F
-- [] Line 12 muffin tins with paper liners
+- Preheat oven to 350°F
+- Line 12 muffin tins with paper liners
 
 ### Baking
 
